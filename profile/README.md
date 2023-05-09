@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Here to make NFTs and break hearts and minds.
+
 <!--
 
 **Here are some ideas to get you started:**
